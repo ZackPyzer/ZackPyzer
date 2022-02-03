@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @ZackPyzer
+- 👀 I’m interested in finding secret menus
+- 🌱 I’m currently learning how to thread on every chat app in the world
+- 💞️ I’m looking to collaborate on NFTs with IRL utility
+- 📫 How to reach me @ZPyzer on Twitter
